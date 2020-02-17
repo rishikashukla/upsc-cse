@@ -1,2 +1,1 @@
-# upsc-cse
-Indian Civil Services Exam - Prep and Planning
+https://www.manoramayearbook.in/
